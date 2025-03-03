@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BreadstickBoi25
 - 👀 I’m interested in anime
 - 🌱 I’m currently learning the basics of coding
-- 💞️ I’m looking to collaborate on nothing right now
+- 💞️ I’m not looking to collaborate on anything right now
 - 📫 How to reach me: 907-231-9828
 
 <!---
